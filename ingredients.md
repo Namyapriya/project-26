@@ -17,3 +17,21 @@ finely chopped (3 large)
 powder
 1 teaspoon coriander powder
 (daniya powder) (optional)
+1 small bay leaf
+(tej patta)
+½ inch cinnamon piece
+(dalchini) (optional)
+2 green cardamom
+(elaichi) (optional)
+3 cloves
+(laung) (optional)
+1½ tablespoon Butter
+1½ teaspoon ginger garlic paste
+200 to 250 grams paneer
+(2 heaped cups)
+1 teaspoon kasuri methi
+(dried fenugreek leaves)
+3 tablespoon cream
+(heavy cream, whipping cream or cooking cream)
+2 tablespoon coriander leaves
+(cilantro finely chopped) (for garnish)
